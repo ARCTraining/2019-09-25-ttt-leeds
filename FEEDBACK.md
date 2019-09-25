@@ -15,3 +15,15 @@
 
 ## Positive
 
+- Really liking starting with the theory & core concepts
+- Concept maps are a good way to breakdown the lesson to help the learners
+- I enjoyed the pace of the content and the engaging way it was delivered
+- Really useful clarification of pegadogical concepts that have obvious practical implications when teaching/running workshop
+- Seeing examples of concepts makes them seem better, I was dubious originally
+- Great course so far!
+- Enjoyed the pace and interactivity
+- Well paced, good mix of exercises. Interesting content.
+- Presentation style great with lots of interaction.
+- Good balance of activities and presentation
+- Exercises useful for consolidated knowledge
+
